@@ -9,7 +9,7 @@ I sometimes write and give keynotes on <a href="https://andreasdittes.com/speake
 
 ## What I’m working on 💼
 
-See https://dittes.co for my startups and projects
+See https://dittes.co for my startups and projects and https://dittesventures.com for my investing activities. 
 
 
 ## Contact 📫
